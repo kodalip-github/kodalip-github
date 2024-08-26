@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on JTAF
 - 📫 How to reach me 
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: like to watch comedy movies
 
 <!---
 kodalip-github/kodalip-github is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
